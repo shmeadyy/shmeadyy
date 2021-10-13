@@ -1,12 +1,10 @@
-## oh hayy!! 👋
+## oh hayy!! 👋 
 
 ### A Little Bit About Me ✨
 
-
- I'm [@shmeadyy](https://github.com/shmeadyy) but most folks call me Laura. I grew up in Los Angeles, spent a little bit of time in San Francisco and am back in LA living by the 🏖️.. Currently, I'm a partner engineer at GitHub but prior to that, I've been at [Facebook](https://www.facebook.com), [Twitter](https://www.twitter.com), and [Salesforce](https://www.salesforce.com). You can resume creep [here](https://www.linkedin.com/in/lauraethorson/) 👀.
+I'm [@shmeadyy](https://github.com/shmeadyy) but most folks call me Laura. I grew up in Los Angeles, spent a little bit of time in San Francisco and am back in LA living by the 🏖️  Currently, I'm a partner engineer at GitHub but prior to that, I've been at [Facebook](https://www.facebook.com), [Twitter](https://www.twitter.com), and [Salesforce](https://www.salesforce.com). You can resume creep [here](https://www.linkedin.com/in/lauraethorson/) 👀
  
- If you really want to get me talking, ask me about watercolor, food (i.e. cooking, restaurants, etc!), and human behavior/psychology. 
- 
+ If you really want to get me talking, ask me about human behavior/psychology, watercolor, or anything food related! 😋
  
 --------
 ### Get the Download ⬇️
@@ -21,9 +19,11 @@
 ### The Fun Stuff 🥳
 
 #### 🖌️ My side hustle is in digital design & watercolor. Oh and I wrote, illustrated and self-published my own [children's book](https://www.etsy.com/listing/866737588/the-san-francisco-alphabet-book?ref=shop_home_active_4)!
-#### 🚲 I'm obsessed with my bike and all things [Peloton](https://www.onepeloton.com/)
-#### 👶 I'm a mama
-#### 📚 I'm an avid reader (I've read 34 books and counting in 2021!)
+#### 🍅 I love to cook and am a huge foodie! Tell me where I need to eat and I'm so there 😍
+#### 🚲 I'm obsessed with my Peloton bike and really all things [Peloton](https://www.onepeloton.com/)
+#### 👶 I'm a mama to a sweet kiddo!
+#### 🎵 I'm a classically trained oboist and vocalist (*former music major!*) but I also love listening to country music! 😆
+#### 📚 I'm an [avid reader](https://www.goodreads.com/user/show/27134762-laura) (I've read 34 books and counting in 2021!)
 
 
 <!--
