@@ -1,8 +1,10 @@
+![manhattan_beach](https://user-images.githubusercontent.com/4021812/137224907-66c40676-2b75-4bd0-8bb1-d3bc3313cf86.jpg)
+
 ## oh hayy!! 👋 
 
 ### A Little Bit About Me ✨
 
-I'm [@shmeadyy](https://github.com/shmeadyy) but most folks call me Laura. I grew up in Los Angeles, spent a little bit of time in San Francisco and am back in LA living by the 🏖️  Currently, I'm a partner engineer at GitHub but prior to that, I've been at [Facebook](https://www.facebook.com), [Twitter](https://www.twitter.com), and [Salesforce](https://www.salesforce.com). You can resume creep [here](https://www.linkedin.com/in/lauraethorson/) 👀
+I'm [@shmeadyy](https://github.com/shmeadyy) but most folks call me Laura. I grew up in Los Angeles, spent a little bit of time in San Francisco and am back in LA living by the 🏖️.  Currently, I'm a partner engineer at GitHub but prior to that, I've been at [Facebook](https://www.facebook.com), [Twitter](https://www.twitter.com), and [Salesforce](https://www.salesforce.com). You can resume creep [here](https://www.linkedin.com/in/lauraethorson/) 👀
  
  If you really want to get me talking, ask me about human behavior/psychology, watercolor, or anything food related! 😋
  
