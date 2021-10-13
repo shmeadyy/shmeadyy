@@ -1,6 +1,6 @@
 ![manhattan_beach](https://user-images.githubusercontent.com/4021812/137224907-66c40676-2b75-4bd0-8bb1-d3bc3313cf86.jpg)
 
-## oh hayy!! 👋 
+# oh hayy!! 👋 
 
 ### A Little Bit About Me ✨
 
