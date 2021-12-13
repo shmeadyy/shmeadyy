@@ -4,16 +4,16 @@
 
 ### A Little Bit About Me ✨
 
-I'm [@shmeadyy](https://github.com/shmeadyy) but most folks call me Laura. I grew up in Los Angeles, spent a little bit of time in San Francisco and am back in LA living by the 🏖️.  Currently, I'm a partner engineer at GitHub but prior to that, I've been at [Facebook](https://www.facebook.com), [Twitter](https://www.twitter.com), and [Salesforce](https://www.salesforce.com). You can resume creep [here](https://www.linkedin.com/in/lauraethorson/) 👀
+I'm [@shmeadyy](https://github.com/shmeadyy) but most folks call me Laura. I grew up in Los Angeles, spent a little bit of time in San Francisco and am back in LA living by the 🏖️.  Currently, I'm a Product Manager at GitHub but prior to that, I've been at [Facebook](https://www.facebook.com), [Twitter](https://www.twitter.com), and [Salesforce](https://www.salesforce.com). You can resume creep [here](https://www.linkedin.com/in/lauraethorson/) 👀
  
  If you really want to get me talking, ask me about human behavior/psychology, watercolor, or anything food related! 😋
  
 --------
 ### Get the Download ⬇️
 
-#### 💻 what I do: partner engineering
+#### 💻 what I do: product management
 #### :octocat: where I do it: GitHub
-#### 📍 where I live: Los Angeles, CA
+#### 📍 where I live: Los Angeles, CA ☝️ that's my beach in that banner photo
 #### 🏫  where I went to school: [UCLA](https://www.ucla.edu/) 🐻 💙 💛
 #### 📫 how to reach me: [<img src="https://img.shields.io/badge/linkedin-%230077B5.svg?&style=for-the-badge&logo=linkedin&logoColor=white">](http://linkedin.com/in/lauraethorson)
 --------
@@ -25,7 +25,7 @@ I'm [@shmeadyy](https://github.com/shmeadyy) but most folks call me Laura. I gre
 #### 🚲 I'm obsessed with my Peloton bike and really all things [Peloton](https://www.onepeloton.com/)
 #### 👶 I'm a mama to a sweet kiddo!
 #### 🎵 I'm a classically trained oboist and vocalist (*former music major!*) but I also love listening to country music! 😆
-#### 📚 I'm an [avid reader](https://www.goodreads.com/user/show/27134762-laura) (I've read 34 books and counting in 2021!)
+#### 📚 I'm an [avid reader](https://www.goodreads.com/user/show/27134762-laura) (I've read 40 books and counting in 2021!)
 
 
 <!--
