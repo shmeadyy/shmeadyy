@@ -13,7 +13,7 @@ I'm [@shmeadyy](https://github.com/shmeadyy) but most folks call me Laura. I gre
 
 #### 💻 what I do: product management
 #### :octocat: where I do it: GitHub
-#### 📍 where I live: Los Angeles, CA ☝️ that's my beach in that banner photo
+#### 📍 where I live: Los Angeles, CA (☝️ that's my beach in the banner photo)
 #### 🏫  where I went to school: [UCLA](https://www.ucla.edu/) 🐻 💙 💛
 #### 📫 how to reach me: [<img src="https://img.shields.io/badge/linkedin-%230077B5.svg?&style=for-the-badge&logo=linkedin&logoColor=white">](http://linkedin.com/in/lauraethorson)
 --------
