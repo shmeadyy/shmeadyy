@@ -11,7 +11,7 @@ I'm [@shmeadyy](https://github.com/shmeadyy) but most folks call me Laura. I gre
 --------
 ### Get the Download ⬇️
 
-#### 💻 what I do: product management
+#### 💻 what I do: event strategy & speaker bureau program manager on DevRel
 #### :octocat: where I do it: GitHub
 #### 📍 where I live: Los Angeles, CA (☝️ that's my beach in the banner photo)
 #### 🏫  where I went to school: [UCLA](https://www.ucla.edu/) 🐻 💙 💛
