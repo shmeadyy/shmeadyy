@@ -23,7 +23,7 @@ I'm [@shmeadyy](https://github.com/shmeadyy) but most folks call me Laura. I gre
 #### 🖌️ My side hustle is in digital design & watercolor. Oh and I wrote, illustrated and self-published my own [children's book](https://www.etsy.com/listing/866737588/the-san-francisco-alphabet-book?ref=shop_home_active_4)!
 #### 🍅 I love to cook and am a huge foodie! Tell me where I need to eat and I'm so there 😍
 #### 🚲 I'm obsessed with my Peloton bike and really all things [Peloton](https://www.onepeloton.com/)
-#### 👶 I'm a mama to a sweet kiddo!
+#### 👶 I'm a mom to 2 kiddos!
 #### 🎵 I'm a classically trained oboist and vocalist (*former music major!*) but I also love listening to country music! 😆
 #### 📚 I'm an [avid reader](https://www.goodreads.com/user/show/27134762-laura) (I've read 40 books and counting in 2021!)
 
